@@ -3,5 +3,5 @@
 <p align="center"> knight ᵒᵘ niel </p>
 <p align="center"> encourage to c+h . w2i is recommended , I'm offtab for the most part so I may be unresponsive ♡ also dni boundary breakers im so srs I dont like u </p>
 <p align="center"> (ᦲ ᆺ ᦲ) </p>
-<p align="center"> check rentry 4 more info ok </p>
-<p align="center"> <a href="https://rentry.co/naraknight"> rentry </a> . <a href="https://prettyknight.atabook.org/"> sign ata plz </a> . <a href="https://semeknight.carrd.co/"> carrd </a> </p>
+<p align="center"> check carrd 4 more info ok </p>
+<p align="center"> <a href="https://prettyknight.atabook.org/"> sign ata plz </a> . <a href="https://semeknight.carrd.co/"> carrd </a> </p>
